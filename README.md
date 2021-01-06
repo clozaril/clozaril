@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning 약동학
 - ❤ I love football
 - ⚡ Fun fact: 오이를 잘먹어요.
-
+- 😢 방학이 오면 좋겠습니다.
